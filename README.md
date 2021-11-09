@@ -106,7 +106,9 @@ As Black feminists and Lesbians we know that we have a very definite revolutiona
 **THE COMBAHEE RIVER COLLECTIVE: “The Combahee River Collective Statement,” copyright © 1978 by Zillah Eisenstein.**
 ## Footnotes
 [1] This statement is date April 1977.
+
 [2] Wallace, Michele. “A Black Feminist’s Search for Sisterhood,” The Village Voice, 28 July 1975, pp. 6-7.
+
 [3] Mumininas of Committee for Unified Newark, Mwanamke Mwananchi (The Nationalist Woman), Newark, N.J., ©1971, pp. 4-5.
 # Short Glossary
 The definitions below are combined from various syllabi and Merriam-Webster’s dictionary. There may be various words and terms throughout the program that you are unfamiliar with. 
